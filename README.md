@@ -1,2 +1,1 @@
-# REGSTRICK
-# LOYIHA-KRISH
+# asosiy
